@@ -8,4 +8,4 @@ Entry for the [make.fun](https://make.fun/bounty/u-mfnakmal-dad-joke-showdown-1d
 
 ## Entry
 
-> My dad tried to fix the Wi-Fi with a ladder — he said the router just needed a better outlook on life.
+> I tried fixing the Wi-Fi with a ladder — turns out the router just needed a better outlook on life.
